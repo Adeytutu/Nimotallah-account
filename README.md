@@ -10,37 +10,37 @@ Seeking a UX Designer position with Microsoft where my education, qualifications
 
 **EDUCATIONAL QUALIFICATIONS:**
 
-Bachelor of Science (Hons) Industrial Relations and Personnel                                                                   Management (Second class upper division), Lagos State University                                                    Mar, 2013- Nov, 2017
+Bachelor of Science (Hons) Industrial Relations and Personnel                                                                   Management (Second class upper division), Lagos State University                                                  (Mar, 2013- Nov, 2017)
 
-Senior Secondary Certificate Examination, Al-kawthar Model College                                                             2006-2012
+Senior Secondary Certificate Examination, Al-kawthar Model College                                                           (2006-2012)
 
 **PROFFESSIONAL QUALIFICATION:**
 
-Univelcity                                                                                                                           Nov. 2019 till date
+Univelcity                                                                                                         (Nov. 2019 till date)
 
 - Product Design (UI/UX)
 - Frontend Development (HTML/CSS, JAVASCRIPT)
 - WordPress
 
-Nigerian Institute of Management (NIM)                                                                                         Dec. 2018
+Nigerian Institute of Management (NIM)                                                                                       (Dec. 2018)
 
 - Graduate Membership Certificate
 - Proficiency Certificate in Management
 
 **CERTIFICATON/TRAINING**
 
-- National Youth Service Corps (NYSC)                                                                                          Mar. 2019
-- Lagos State Government Entrepreneurship and Employability Training                                                           Sep. 2017
+- National Youth Service Corps (NYSC)                                                                                        (Mar. 2019)
+- Lagos State Government Entrepreneurship and Employability Training                                                        ( Sep. 2017)
 
 **WORK EXPERIENCE:**
 
-**Intern** at Sustainable Quality Energy (Solar installation and consulting),                                       Jan. 2019- Jun. 2019  Ikeja, Lagos.
+**Intern** at Sustainable Quality Energy (Solar installation and consulting),                                     (Jan. 2019- Jun. 2019)  Ikeja, Lagos.
 
 - Research and contribute to various topics relating to projects in the organization
 - Compile, organize, manage, and update text and numerical data information and                                                   entering it into spreadsheets and databases
 - Assist the HR manager with record maintenance, payroll processing and provide                                                   clerical support to all employees
 
-**Instructor** at Military Training Centre, Nigerian Air Force Kaduna                                                May. 2018-Mar. 2019
+**Instructor** at Military Training Centre, Nigerian Air Force Kaduna                                              (May. 2018-Mar. 2019)
 
 - Lecture Personnel on Human Resource Management
 - Coordinate activities in the Computer Laboratory
