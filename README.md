@@ -10,7 +10,7 @@ Seeking a UX Designer position with Microsoft where my education, qualifications
 
 **EDUCATIONAL QUALIFICATIONS:**
 
-Bachelor of Science (Hons) Industrial Relations and Personnel                                                       Mar, 2013- Nov, 2017 Management (Second class upper division), Lagos State University
+Bachelor of Science (Hons) Industrial Relations and Personnel                                                                   Management (Second class upper division), Lagos State University                                                    Mar, 2013- Nov, 2017
 
 Senior Secondary Certificate Examination, Al-kawthar Model College                                                             2006-2012
 
